@@ -1,3 +1,0 @@
-# Yvonne Valerie Jacalan
----
-### hahhahahahhah
